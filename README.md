@@ -1,1 +1,1 @@
-# Welcome-Petya-VIRUS-
+Warning! This viruses is harmless!
